@@ -8,7 +8,7 @@
 - Friendless
 - Not famous
 ========================================================================
-- Game Studio name - RascalButterfly Entertainment
+- Game Studio name - Borwexium
 - Artist name - ULU REACTOR
 ========================================================================
 - The creator of "JOURNEY TO THE HEART OF DARKNESS"
